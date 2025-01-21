@@ -1,8 +1,8 @@
-# nffreige.github.io
+
 
 # Natalia Fernández Freige
 
-**Energy Analyst | Consultant | Industrial Engineer**
+Energy Analyst | Consultant | Industrial Engineer
 
 ---
 
